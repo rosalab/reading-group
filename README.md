@@ -1,4 +1,4 @@
-# Abstraction Explorers Reading Circle
+# Abstraction Explorers Guild
 
 Tentatively scheduled for Thursdays 11-12
 
